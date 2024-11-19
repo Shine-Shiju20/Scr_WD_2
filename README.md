@@ -23,4 +23,3 @@ Author- SHINE SHIJU
 shineshiju2005@gmail.com 
 
 ![Stopwatch ](https://github.com/user-attachments/assets/1bc2d49e-06bd-40e3-9157-e0459ecdf0fe)
-![Stopwatch ](https://github.com/user-attachments/assets/63daf840-26b4-48b8-aa3f-48fe82911e7f)
